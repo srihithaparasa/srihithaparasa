@@ -1,6 +1,6 @@
 # Hi, I'm Srihitha Parasa 👋  
 
-🎓 2nd Year Engineering Student  
+🎓 3rd Year Engineering Student  
 💡 Always learning, always building  
 I'm still new to networking and I'm willing to take any risk or oppourtunity that helps me grow and be a better me for tomorrow 
 ---
